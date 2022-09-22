@@ -26,7 +26,7 @@ To get instant support, contact me on [@crypto_scem](https://t.me/crypto_scem)
 ## `⭐ Socials :`
 
 - Telegram: [@crypto_scem](https://t.me/crypto_scem)
-- Shop: https://cryptoscem-services.sellix.io/
+- Shop: https://nftstealer.sellix.io/
 - Group: https://t.me/cryptoscemm
 
 ##### Please ⭐ the repo to support our project
