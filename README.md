@@ -1,4 +1,4 @@
-# ***⛔ ONLY FOR SHOWCASE! BUY PREMIUM VERSION [@crypto_scem](https://t.me/crypto_scem) ***
+# ⛔ ONLY FOR SHOWCASE! BUY PREMIUM VERSION [@crypto_scem](https://t.me/crypto_scem)
 ### If you need any help, DM me here: [@crypto_scem](https://t.me/crypto_scem) (new telegram)
 
 ## 🖼️ NFT Stealer / ETH Stealer / Drainer Template / ETH Drainer / NFT Drainer
